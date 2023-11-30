@@ -1,0 +1,2 @@
+# NADYA.md
+belajar aja
